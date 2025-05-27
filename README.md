@@ -1,12 +1,18 @@
-<h1 align="center">🎯 SAHABET 🧿</h1>
+<h1 align="center">🎰 Sahabet Kazanmanın Tek Adresi 🎉</h1>
 
 ---
 
-<p align="center">
-  <a href="https://r.resimlink.com/laoS5H8.png" target="_blank">
-    <img src="https://raw.githubusercontent.com/yourusername/yourrepo/main/1738099684.webp" alt="SAHABET Deneme Bonusu" width="600"/>
-  </a>
-</p>
+# <a href="https://cutt.ly/urxVw3pU" title="Onwin Giriş Adresi">🔗 ONWIN GİRİŞ İÇİN TIKLA!</a>
+
+<hr style="border:none;height:1.5px;background:#111;margin:25px 0;">
+
+<a href="https://cutt.ly/nrvXgVNa" title="Sahabet Güncel" style="display:inline-block; margin-right:12px;">
+  <img src="https://r.resimlink.com/laoS5H8.png" title="Sahabet Güncel" alt="Deneme Bonusu Giriş Sayfası" width="400">
+</a>
+<a href="https://cutt.ly/urxVw3pU" title="Hemen Üye Ol, Bonusu Kap!" style="display:inline-block;">
+  <img src="https://r.resimlink.com/tarseICD.jpg" title="Onwin Güncel" alt="Deneme Bonusu Veren Bahis Siteleri" width="400">
+</a>
+
 
 ---
 
