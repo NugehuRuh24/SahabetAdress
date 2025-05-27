@@ -2,7 +2,7 @@
 
 ---
 
-# <a href="https://cutt.ly/nrvXgVNa" title="Sahabet Giriş Adresi">🔗 SAHABET GİRİŞ İÇİN TIKLA!</a>
+### <a href="https://cutt.ly/nrvXgVNa" title="Sahabet Giriş Adresi">🔗 SAHABET GİRİŞ İÇİN TIKLA!</a>
 
 <hr style="border:none;height:1.5px;background:#111;margin:25px 0;">
 
