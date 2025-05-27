@@ -46,7 +46,7 @@
 Bu sayfa **NEEDSEO Marka Koruma Hizmetleri** tarafından hazırlanmıştır.  
 Tasarım, içerik ve yönlendirmelerde %100 özgünlük garantilidir.
 
-# Sitenizi korumaya almak ve sıralamanızı yükseltmek için:
+### Sitenizi korumaya almak ve sıralamanızı yükseltmek için:
 
 1. Telegram’a girin 📲  
 2. Bize yazın: **[@NeedSeo](https://t.me/NeedSeo)**  
