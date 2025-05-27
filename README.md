@@ -3,7 +3,7 @@
 ---
 
 <p align="center">
-  <a href="https://cutt.ly/nrvXgVNa" target="_blank">
+  <a href="https://r.resimlink.com/TAPWw8FkzO.webp" target="_blank">
     <img src="https://raw.githubusercontent.com/yourusername/yourrepo/main/1738099684.webp" alt="SAHABET Deneme Bonusu" width="600"/>
   </a>
 </p>
